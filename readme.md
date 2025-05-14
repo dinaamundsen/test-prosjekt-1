@@ -1,0 +1,1 @@
+forstår ikkeno
